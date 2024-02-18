@@ -13,6 +13,4 @@ https://www.reddit.com/user/RipSweet2063/comments/1ae94cj/usaco_solutions_for_sa
 
 PROOF:
 
-https://streamable.com/v0prfy
-
-https://streamable.com/xzx8he
+https://www.reddit.com/user/RipSweet2063/comments/1ae94cj/usaco_solutions_for_sale/
